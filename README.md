@@ -1,0 +1,1 @@
+# Ban any ##instagram account
